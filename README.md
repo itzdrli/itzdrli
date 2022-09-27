@@ -13,3 +13,5 @@
 
 #### I play Fortnite, Minecraft, GTAV and some more.
 
+![dlmc.png](./assets/dlmc.png)
+![thesimples.png](assets/thesimples.png)
