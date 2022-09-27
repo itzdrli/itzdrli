@@ -10,3 +10,6 @@
 #### Bad coding
 
 #### Dream is be in a good college + Make my mc server famous.
+
+#### I play Fortnite, Minecraft, GTAV and some more.
+
